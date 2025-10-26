@@ -1,4 +1,4 @@
-### Hi, I'm Lantas 👋
+### Hi, I'm brb.gtg 👋
 
 This is  
 - 15% luck  
