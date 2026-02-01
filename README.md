@@ -1,10 +1,2 @@
 ### Hi, I'm brb.gtg 👋
-
-This is  
-- 15% luck  
-- 20% power of will  
-- 25% caffeine 
-- 30% pain
-- 10% rage
-
 and a 100% reason to forget the name 
